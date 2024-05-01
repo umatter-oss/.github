@@ -29,5 +29,5 @@ Thank you for being a part of our community and for contributing to our open-sou
 
 ---
 
-Best regards,  
+👋 Best regards,  
 The uMatter Team
